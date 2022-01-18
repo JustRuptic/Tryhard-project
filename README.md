@@ -1,2 +1,1 @@
-# Tryhard-project
-Bored still but need to tryhard
+#Welcome to The world of Imori
